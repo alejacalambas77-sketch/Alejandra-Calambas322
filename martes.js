@@ -1,7 +1,6 @@
 hoy es martes 
 
 
-NO!!!!
+Y si... Si es nartes we, que chucha :v
 
-HOY ES VIERNES!!!!!!!!!
-WAWAWAÑAÑAÑAÑAÑA
+
